@@ -9,7 +9,7 @@ Sou um entusiasta de tecnologia sempre em busca de entender como as coisas funci
 
 ### Vamos Conversar
 
-Se você quiser trocar ideias, discutir projetos ou simplesmente conversar sobre tecnologia, sinta-se à vontade para me enviar um e-mail para [juancarlosfedel@gmail.com](mailto:juancarlosfedel@gmail.com). Adoro conectar com outras pessoas e explorar novas possibilidades.
+Se você quiser trocar ideias, discutir projetos ou simplesmente conversar sobre tecnologia, sinta-se à vontade para me enviar um e-mail para [juancarlos@gmail.com](mailto:juancarlos@gmail.com). Adoro conectar com outras pessoas e explorar novas possibilidades.
 
 ### O Que Esperar Aqui
 
